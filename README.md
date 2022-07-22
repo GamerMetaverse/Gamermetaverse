@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: team@gamermetaverse.live
 
 - ⚡ Fun fact: web3 gaming is still in the early days , its like the first doom compared to the current doom game
--->
+-->1
